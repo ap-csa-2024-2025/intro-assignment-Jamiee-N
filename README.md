@@ -13,7 +13,6 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
-* List your sports and extracurriculars you participate in
-hello
+* Something interesting about me is I like matcha
+* Ask Mr. Vu anything: If you had to dye your hair any color what would it be?!
+* List your sports and extracurriculars you participate in: VACC, MERITS, Upward Bound
